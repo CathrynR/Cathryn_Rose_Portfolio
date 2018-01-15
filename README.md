@@ -1,1 +1,1 @@
-Cathryn's writing & management portfolio. 
+Cathryn's marketing portfolio. 
